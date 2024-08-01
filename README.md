@@ -27,9 +27,7 @@ I'm Jose's assistant. Try some of the following:
 
 > (2) Read my [last story](https://medium.com/@joseguillermo_) at Medium.
 
-> (3) DM me on [Instagram](https://www.instagram.com/jguillermo___/).
-
-> (4) Listen to my last [favorite song](https://youtu.be/77j5mjOtjbc).
+> (3) Listen to my [favorite music](https://open.spotify.com/user/a6cgaarg3a40iw3vtnc4t04lz?si=ece33ac065d94d94).
 
 
 ___
